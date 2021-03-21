@@ -3,4 +3,3 @@
 #### Baitanatova Illana
 #### Bakhyt Tomiris
 #### Bayanov Zhahangir
-#### Nabyyev Salamat
